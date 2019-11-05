@@ -1,5 +1,5 @@
 # LabolatoriaIO
-Krystian B
+Zmienione zdalnie
 No Siema zmiana 1
 12312
 
